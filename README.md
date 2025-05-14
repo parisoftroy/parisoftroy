@@ -6,7 +6,7 @@
 
 <sub>if you ever see me sitting with a "robloxarg" or "mephone4s" guys pls call the police idk them!</sub> 
 
-![](https://files.catbox.moe/q54sgt.png)
+![](https://files.catbox.moe/9yz5f0.png)
 
 
 
