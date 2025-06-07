@@ -18,6 +18,8 @@
 
 <sub>art by puyoupuyou</sub> 
 
+<sub>Also just to make things clear, do NOT interact with me if you shipp briseis x achilles/patroclus or agamemnon. Thank you.</sub> 
+
 
 </div>
 
