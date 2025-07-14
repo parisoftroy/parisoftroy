@@ -1,25 +1,8 @@
-</div>
 
-<div align="center">
-  
+REMAKING THIS. including strawpage and atabook.
 
+DNI: no dni at all besides the basic everyone knows about + if you're a fucking weirdo.
+DO NOT copy my skins, ASK for inspo.
 
-<sub>if you ever see me sitting with a "robloxarg" or "mephone4s" guys pls call the police idk them!</sub> 
-
-![](https://files.catbox.moe/9yz5f0.png)
-
-
-
-
-
-
-
-[atabook](https://hermes.atabook.org)ㅤㅤㅤ[strawpage](https://parisoftroy.straw.page)
-
-<sub>art by puyoupuyou</sub> 
-
-<sub>Also just to make things clear, do NOT interact with me if you shipp briseis x achilles/patroclus or agamemnon. I will hide you if you do.</sub> 
-
-
-</div>
-
+INT: LMK FANS!!! GREAT GOD GROVE FANS, iliad fans, e:tm interact with caution.
+Call me Sun, Paris, Click clack or Nirra
